@@ -8,7 +8,7 @@
 
 ## 二.下单领取 （西柚云优惠券）
 
-访问链接注册： https://www.xiyoucloud.net/aff/EXULSQHH 
+访问链接注册： https://www.tebteb.cc/tz/xiyoucloud
 
 ###  下单： 填写 yflalalaa 立减200 元
 
