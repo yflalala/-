@@ -1,4 +1,4 @@
-![西柚云广告图.png](https://cdn.nlark.com/yuque/0/2024/png/26571984/1722268119495-1c5dc33b-d5d1-48bb-a410-7bda06c82f8a.png#averageHue=%23e5dcb2&clientId=u15076bc0-bf9b-4&from=drop&id=u3f94cd1c&originHeight=500&originWidth=900&originalType=binary&ratio=1.25&rotation=0&showTitle=false&size=63415&status=done&style=none&taskId=ube06ebc9-6b26-4ed4-b93e-16e3961a13f&title=)
+![西柚云广告图.png](https://cdn.nlark.com/yuque/0/2024/png/26571984/1725766551212-ef603957-69cc-4a29-94a7-a500160d690f.png)
 
 ## 一.开头
 
